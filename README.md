@@ -1,0 +1,1 @@
+# https://nikolai-ambartsumov.github.io/zakrivayuschiy-teg-f/
